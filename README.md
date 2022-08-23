@@ -1,1 +1,1 @@
-ALX is the best school evr.
+ALX is the best school ever.
